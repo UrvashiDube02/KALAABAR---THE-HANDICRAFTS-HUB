@@ -103,6 +103,7 @@ the respective commission -
 
 From a random click of mind and ending up with the principle of the project VOCAL FOR LOCAL, we have discussed the required abstract of the idea, given an introduction to the company, discussed the environmental analysis and also the 7P's and source of funding of our company. 
 
-![image](https://user-images.githubusercontent.com/87383888/125512616-d526c0e7-ae60-4a0a-acdb-b36388e974c2.png)
+ ![image](https://user-images.githubusercontent.com/87383888/125513702-2065726c-5f34-4216-b24d-78f58c894e07.png)
+
 
 
